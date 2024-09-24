@@ -5,6 +5,17 @@
 
 
 
+What I'm Looking For 🤝
+
+I'm always looking for new opportunities to collaborate with other developers, designers, and entrepreneurs 🤝. If you have a project in mind that you think I'd be a good fit for, let's connect! 💬 I'm also open to contributing to open-source projects and learning from others in the community 📚.
+
+Let's Connect 📱
+
+Email: wckangethe@gmail.com 📧
+LinkedIn: linkedin.com/in/wairima 💼
+Twitter: @wk_christie 🐦
+
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/wk_christie_backup) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/Wairima Kang'ethe) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/wk_christie) 
 
