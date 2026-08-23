@@ -13,7 +13,7 @@ Let's Connect 📱
 
 Email: wckangethe@gmail.com 📧
 LinkedIn: linkedin.com/in/wairima 💼
-Twitter: @wk_christie 🐦
+
 
 
 ## 🌐 Socials:
